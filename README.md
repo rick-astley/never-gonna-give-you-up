@@ -1,3 +1,3 @@
 # never-gonna-give-you-up
 
-![](https://i.imgur.com/iKfWMMh.gifv)
+![](https://media.giphy.com/media/4H1sysNjXK2BuHzQlR/giphy.gif)
